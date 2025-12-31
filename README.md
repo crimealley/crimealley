@@ -13,7 +13,8 @@ hi i'm rance. i like rubix cubes. go explore my readme. have fun.
 
 <details>
   <summary>about me</summary>
-hello insert introduction / i am a **16**yo idiot who believes we're all buddies and should hold hands and frolick in sunny fields.
+
+  hello insert introduction / i am a **16**yo idiot who believes we're all buddies and should hold hands and frolick in sunny fields.
 
   contrary to popular belief, i am a she*her*. but who gaf i get misgendered every day ok? ok but fr refrain from using masc terms on me. also i'm asexual.
 
@@ -27,7 +28,7 @@ hello insert introduction / i am a **16**yo idiot who believes we're all buddies
   i am big noob at socializing which can lead me to say things that might make the conversation awkward or kill the mood. *i'm not saying i say like BAD stuff*, i'm saying my idiot ass is prone to accidentally ending conversations prematurely.
 
 **iwc**
-um if u're like under 13 pls iwc. also if over 20.
+if u're like under 13 pls iwc. also if over 20.
 
 **dni**
 no strict dni i'll freely block ok? ok.
@@ -41,4 +42,12 @@ no strict dni i'll freely block ok? ok.
 **OVERALL FANDOMS** *DC*, ***TRANSFORMERS***,*Phighting*, *Ultrakill*, Star Wars, theres more i cant remember
 
 <sub>single handedly lost the audience by saying i like phighting / someone beat me up now so i can rebirth and start new tycoon</sub>
+</details>
+
+<details>
+  <summary>where to contact me</summary>
+
+**GITHUB** ***@ranujet*** *lostinphernal* both me. ok? ok.
+
+**DISCORD** @ranujet / deadass i'm inactive there but feel free wtv
 </details>
