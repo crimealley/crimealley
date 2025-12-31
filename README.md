@@ -49,7 +49,7 @@ no strict dni i'll freely block ok? ok.
 <details>
   <summary>where to contact me</summary>
 
-**GITHUB** ***@ranujet*** *lostinphernal* both me. ok? ok.
+**GITHUB** ***@ranujet*** *@lostinphernal* both me. ok? ok.
 
 **DISCORD** @ranujet / deadass i'm inactive there but feel free wtv
 </details>
