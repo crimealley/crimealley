@@ -53,3 +53,9 @@ no strict dni i'll freely block ok? ok.
 
 **DISCORD** @ranujet / deadass i'm inactive there but feel free wtv
 </details>
+
+![ARKHAMKNIGHTCOMICS](https://files.catbox.moe/ha6wq3.png)
+
+<p align="center">
+  $\color{#8091D3}{\text{" when i am with you? "}}$
+</p>
