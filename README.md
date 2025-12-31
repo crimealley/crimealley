@@ -9,3 +9,4 @@
 <p align="right">
 hi i'm rance, either one of the stupidest or smartest people you'll meet. i like rubix cubes. go explore my readme. have fun.
 </p>
+<sub>this is my friendship resume please hire me</sub>
