@@ -59,3 +59,9 @@ no strict dni i'll freely block ok? ok.
 <p align="center">
   $\color{#8091D3}{\text{" when i am with you? "}}$
 </p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3132g45nsy7dzctibp4xs7hmth3y&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=3147a5&bar_color_cover=false">
+  </a>
+</p>
