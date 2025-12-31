@@ -27,6 +27,8 @@ hi i'm rance. i like rubix cubes. go explore my readme. have fun.
   **byi**
   i am big noob at socializing which can lead me to say things that might make the conversation awkward or kill the mood. *i'm not saying i say like BAD stuff*, i'm saying my idiot ass is prone to accidentally ending conversations prematurely.
 
+  <sub>also i'm a hella shy person, but it's 50/50 if i'll interact first. i may act distant sometimes/or just ignorantly mean, please do **tell me if i hurt your feelings**. *it's never my intention to make someone upset*.</sub>
+
 **iwc**
 if u're like under 13 pls iwc. also if over 20.
 
@@ -39,7 +41,7 @@ no strict dni i'll freely block ok? ok.
 
 **GAMES** Phighting, Ultrakill, CoD: Ghosts, JSaB + GeoDash, Arkham Knight
 
-**OVERALL FANDOMS** *DC*, ***TRANSFORMERS***,*Phighting*, *Ultrakill*, Star Wars, theres more i cant remember
+**OVERALL FANDOMS** *DC*, ***TRANSFORMERS***, *Phighting*, *Ultrakill*, Star Wars, theres more i cant remember
 
 <sub>single handedly lost the audience by saying i like phighting / someone beat me up now so i can rebirth and start new tycoon</sub>
 </details>
