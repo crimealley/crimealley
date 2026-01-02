@@ -16,7 +16,7 @@ hi i'm rance. i like rubix cubes. go explore my readme. have fun.
 
   hello insert introduction / i am a **16**yo idiot who believes we're all buddies and should hold hands and frolick in sunny fields.
 
-  contrary to popular belief, i am a she*her*. but who gaf i get misgendered every day :') -- i genuinely don't really care about what people call me (for the love of the game type shi)
+  hi i usually use *she* pronouns but like.. they/he is cool too idrc. (for the love of the game type shi)
 
   <sub>"hello my name is bob!" ahh</sub>
 </details>
