@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=crimealley&color=FE7940&label=vigilantes&style=plastic)
 
 <p align="center">
-  $\color{#C82C28}{\text{" how could my day be bad, "}}$
+  $\color{#C82C28}{\text{" through solar skies, hues coloured warmth, "}}$
 </p>
 
 ![ABSOLUTEKALEL](https://files.catbox.moe/bu8ulu.png)
@@ -57,7 +57,7 @@ no strict dni i'll freely block ok? ok.
 ![ABSOLUTEKALEL](https://files.catbox.moe/nqjw4l.png)
 
 <p align="center">
-  $\color{#C82C28}{\text{" when i am with you? "}}$
+  $\color{#C82C28}{\text{" i sought your light, as the fires swarmed. "}}$
 </p>
 
 <p align="center">
