@@ -4,7 +4,7 @@
   $\color{#C82C28}{\text{" how could my day be bad, "}}$
 </p>
 
-![ARKHAMKNIGHTCOMIC](https://files.catbox.moe/y1jxxn.png)
+![ABSOLUTEKALEL](https://files.catbox.moe/bu8ulu.png)
 
 <p align="right">
 hi i'm rance. i like rubix cubes. go explore my readme. have fun.
@@ -54,7 +54,7 @@ no strict dni i'll freely block ok? ok.
 **DISCORD** @ranujet / deadass i'm inactive there but feel free wtv
 </details>
 
-![ARKHAMKNIGHTCOMICS](https://files.catbox.moe/ha6wq3.png)
+![ABSOLUTEKALEL](https://files.catbox.moe/nqjw4l.png)
 
 <p align="center">
   $\color{#C82C28}{\text{" when i am with you? "}}$
