@@ -1,7 +1,7 @@
-![](https://komarev.com/ghpvc/?username=crimealley&color=3147A5&label=vigilantes&style=plastic)
+![](https://komarev.com/ghpvc/?username=crimealley&color=C82C28&label=vigilantes&style=plastic)
 
 <p align="center">
-  $\color{#F6BEBF}{\text{" how could my day be bad, "}}$
+  $\color{#C82C28}{\text{" how could my day be bad, "}}$
 </p>
 
 ![ARKHAMKNIGHTCOMIC](https://files.catbox.moe/y1jxxn.png)
@@ -57,7 +57,7 @@ no strict dni i'll freely block ok? ok.
 ![ARKHAMKNIGHTCOMICS](https://files.catbox.moe/ha6wq3.png)
 
 <p align="center">
-  $\color{#F6BEBF}{\text{" when i am with you? "}}$
+  $\color{#C82C28}{\text{" when i am with you? "}}$
 </p>
 
 <p align="center">
