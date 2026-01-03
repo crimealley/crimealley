@@ -22,7 +22,7 @@ hi i'm rance. i like rubix cubes. go explore my readme. have fun.
 </details>
 
 <details>
-  <summary>byi, dni + w2i</summary>
+  <summary>byi, dni + iwc</summary>
 
   **byi**
   i am big noob at socializing which can lead me to say things that might make the conversation awkward or kill the mood. *i'm not saying i say like BAD stuff*, i'm saying my idiot ass is prone to accidentally ending conversations prematurely.
