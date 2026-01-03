@@ -16,7 +16,7 @@ hi i'm rance. i like rubix cubes. go explore my readme. have fun.
 
   hello insert introduction / i am a **16**yo idiot who believes we're all buddies and should hold hands and frolick in sunny fields.
 
-  hi i usually use *she* pronouns but like.. they/he is cool too idrc. (for the love of the game type shi)
+  comfortable with *they***them**. but feel free to use she, he, idm. also i'm asexual so uh.. prolly why i get awkward with freaky jokes (I DONT MIND IF YOU MAKE THEM JUST.. WITH CAUTION CUZ IM A MINOR. :') maybe avoid doing it for that reason.)
 
   <sub>"hello my name is bob!" ahh</sub>
 </details>
@@ -41,7 +41,7 @@ no strict dni i'll freely block ok? ok.
 
 **GAMES** Phighting, Ultrakill, CoD: Ghosts, JSaB + GeoDash, Arkham Knight
 
-**OVERALL FANDOMS** *DC*, ***TRANSFORMERS***, *Phighting*, *Ultrakill*, Star Wars, theres more i cant remember
+**OVERALL FANDOMS** *DC*, ***TRANSFORMERS***, *Phighting*, *Ultrakill*, Star Wars, Voltron: Legendary Defender, theres more i cant remember
 
 <sub>single handedly lost the audience by saying i like phighting / someone beat me up now so i can rebirth and start new tycoon</sub>
 </details>
