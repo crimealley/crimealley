@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=crimealley&color=FE7940&label=vigilantes&style=plastic)
+![](https://komarev.com/ghpvc/?username=crimealley&color=AA5129&label=vigilantes&style=plastic)
 
 <p align="center">
   $\color{#C82C28}{\text{" through solar skies, hues coloured warmth, "}}$
